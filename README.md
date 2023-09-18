@@ -1,1 +1,10 @@
-# apresentacao
+# OLA SOU TANIA, ESTUDANTE DE ENSINO MEDIO 📽️
+
+**GOSTO DOS LIVRO DE VINICIUS DE MORAIS**📚
+
+_TENHO 15 ANOS_ ↙️
+
+~~GOSTO MUITO BILLIE ELISH~~ 🩹 🫀
+
+<sub>Moro em Diamante do Sul</sub>
+😃
